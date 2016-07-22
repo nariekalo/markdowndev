@@ -16,3 +16,10 @@ CHAPTER II. THE REIGN OF JAMES II. IN ENGLAND.—THE INVASION OF
 ---------------------------------------------------------------
 WILLIAM, PRINCE OF ORANGE—FROM 1685-1688.
 -----------------------------------------
+
+
+CHAPTER III. EVENTS PRECEDING HOSTILITIES IN IRELAND. THE PREPARATORY
+---------------------------------------------------------------------
+MEASURES OF TYRCONNELL.
+-----------------------------------------
+
