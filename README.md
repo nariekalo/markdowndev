@@ -30,3 +30,8 @@ OF THE PRINCE OF ORANGE.
 
 CHAPTER XIII. ARRIVAL OF THE DUKE OF MARLBOROUGH—THE SIEGES OF CORK AND KINSALE.
 --------------------------------------------------------------------------------
+
+
+=================================================================================
+Project Gutenberg ebook of The Battle-fields of Ireland, from 1688 to 1691
+=================================================================================
