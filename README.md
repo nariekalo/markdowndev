@@ -28,3 +28,5 @@ CHAPTER VIII. SCHOMBERG'S CAMPAIGN CONTINUED—THE ARRIVAL
 OF THE PRINCE OF ORANGE.
 ------------------------------
 
+CHAPTER XIII. ARRIVAL OF THE DUKE OF MARLBOROUGH—THE SIEGES OF CORK AND KINSALE.
+--------------------------------------------------------------------------------
