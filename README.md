@@ -25,11 +25,11 @@ MEASURES OF TYRCONNELL.
 
 CHAPTER IV. FROM THE COMMENCEMENT OF HOSTILITIES TO THE LANDING
 ----------------------------------------------------------------
+OF KING JAMES IN IRELAND.
+-----------------------------------------
 
 CHAPTER V. THE BATTLE OF CLADIFORD—THE INVESTMENT OF DERRY
 ------------------------------------------------------------
 —PROCEEDINGS OF PARLIAMENT.
 ---------------------------
-OF KING JAMES IN IRELAND.
------------------------------------------
 
