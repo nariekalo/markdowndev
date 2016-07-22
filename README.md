@@ -33,3 +33,7 @@ CHAPTER V. THE BATTLE OF CLADIFORD—THE INVESTMENT OF DERRY
 —PROCEEDINGS OF PARLIAMENT.
 ---------------------------
 
+CHAPTER VI. THE BATTLE OF NEWTOWNBUTLER, AND THE RELIEF OF
+-----------------------------------------------------------
+ENNISKILLEN AND DERRY.
+-----------------------------------------
