@@ -23,3 +23,8 @@ CHAPTER III. EVENTS PRECEDING HOSTILITIES IN IRELAND. THE PREPARATORY
 MEASURES OF TYRCONNELL.
 -----------------------------------------
 
+CHAPTER IV. FROM THE COMMENCEMENT OF HOSTILITIES TO THE LANDING
+----------------------------------------------------------------
+OF KING JAMES IN IRELAND.
+-----------------------------------------
+
