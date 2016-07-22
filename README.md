@@ -14,5 +14,5 @@ ACCESSION OF JAMES II.
 
 CHAPTER II. THE REIGN OF JAMES II. IN ENGLAND.—THE INVASION OF
 ---------------------------------------------------------------
-WILLIAM,PRINCE OF ORANGE—FROM 1685-1688.
+WILLIAM, PRINCE OF ORANGE—FROM 1685-1688.
 -----------------------------------------
